@@ -1,0 +1,1 @@
+# ArtigoSalaoFerramentasWTICGSBSeg24
